@@ -1,5 +1,6 @@
+
 # 💫 Oii eu sou a Luna:
-🍒 i'm 18 yo<br>​🍓​ technical course in systems developed<br>🍉 technical course in administration<br>​💖​ love cats
+🍒 i'm 18 yo<br>​🍓​ estudante do tecnólogo em desenvolvimento de sistemas<br>🍉💖​
 
 
 ## 🌐 Socials:
