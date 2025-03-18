@@ -1,6 +1,6 @@
 
 # 💫 Oii eu sou a Luna:
-🍒 i'm 18 yo<br>​🍓​ estudante do tecnólogo em desenvolvimento de sistemas<br>🍉💖​
+🍒 i'm 18 yo<br>​🍓​ estudante do curso tecnólogo em desenvolvimento de sistemas(UNIMAR)<br>
 
 
 ## 🌐 Socials:
